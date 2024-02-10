@@ -2,12 +2,20 @@
 
 ## Ingredients (2 People)
 
+### Main
+
 - Chicken 400G
-- Chopped Tomatoes 200G ( 1/2 of 400G Can )
-- Curry Paste ~70G ( 1/4 of 280G Jar )
 - Pepper 1/2
 - Onion 1/2 or Red Onion 1/4 and Brown Onion 1/4
 - Basmati Rice 400G / 280ml to 280ml of Water
+
+### Sauce
+
+- Chopped Tomatoes 200G ( 1/2 of 400G Can )
+- Curry Paste ~70G ( 1/4 of 280G Jar )
+
+### Extras
+
 - Olive oil "a splash"
 - Table (Big) spoon
 
@@ -75,6 +83,7 @@ This technique is the best life hack for minimal tears when chopping onions. Rea
 - Turn on the hob on a low heat
 - Let the chicken sizzle until the meat is white
 - Turn the chicken over until the meat is white
+- Peroidically add slices of butter until the vegetables are added
 
 ### Adding The Sauce
 
