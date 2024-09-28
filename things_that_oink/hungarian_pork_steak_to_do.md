@@ -13,14 +13,14 @@
 ### Sauce
 
 - Chopped tomatoes 400G
-- Balsamic vingear 1 table spoon
-- Smoke Paprika 1/2 table spoon
-- Garlic Paste 1/2 table spoon
+- Balsamic vingear 1 table (big) spoon
+- Smoke Paprika 1/2 table (big) spoon
+- Garlic Paste 1/2 table (big) spoon
 
 ### Extra
 
 - Olive oil
-- Table (Big) spoon
+- Table (big) spoon
 
 ## Pots and Pans
 
