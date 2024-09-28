@@ -83,6 +83,7 @@ This technique is the best life hack for minimal tears when chopping onions. Rea
 - Turn on the hob on a low heat
 - Let the chicken sizzle until the meat is white
 - Turn the chicken over until the meat is white
+- Peroidically add slices of butter until the vegetables are added
 
 ### Adding The Sauce
 
