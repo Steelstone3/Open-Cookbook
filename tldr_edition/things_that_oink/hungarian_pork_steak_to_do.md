@@ -13,11 +13,12 @@
 
 ## Meal
 
+- Get a pan
 - Defrost pork
 - Cut half a pepper
 - Cut 1 carrot
 - Cut 1 apple
-- Brown pork + butter + seasoning + garlic paste
+- Brown pork + oil + butter + seasoning + garlic paste
 - Add vegtables
 - Add sauce
 - Add coriander
