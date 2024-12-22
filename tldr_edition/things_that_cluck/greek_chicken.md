@@ -18,13 +18,16 @@
 - Get a plate to cover the bowl
 - Leave for 10 minutes
 
-## Meal
+## Preparation
 
 - Get a pan
 - Defrost chicken 400 gram
 - Cut half a pepper
 - Cut a chilli
 - Measure out 200 gram peas
+
+## Meal
+
 - Brown chicken
   - Add oil
   - Add butter
@@ -32,6 +35,6 @@
   - Add chilli
   - Add olives
   - Add oregano
-- Make the cous cous
+- Cook the cous cous
 - Make the dip
 - Cook until ready

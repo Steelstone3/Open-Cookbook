@@ -2,7 +2,7 @@
 
 > Serves 2
 
-## Meal
+## Preparation
 
 - Get saucepan
 - Get measuring jug
@@ -12,6 +12,9 @@
 - Measure out 200g peas
 - Measure out 200g of tomatoes
 - Measure out 200g of pasta
+
+## Meal
+
 - Brown lamb
   - Add oil
   - Add butter
