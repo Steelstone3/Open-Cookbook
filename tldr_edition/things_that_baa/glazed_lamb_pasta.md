@@ -4,17 +4,27 @@
 
 ## Preparation
 
+- Get pan
 - Get saucepan
 - Get measuring jug
 - Boil kettle
 - Defrost lamb 400gram
 - Cut one chilli
+- Measure out 200g of pasta
 - Measure out 200g peas
 - Measure out 200g of tomatoes
-- Measure out 200g of pasta
 
 ## Meal
 
+### Sauce Pan
+
+- Add water to saucepan
+  - Add peas
+  - Add pasta
+- Boil for around 15 minutes
+
+### Pan
+  
 - Brown lamb
   - Add oil
   - Add butter
@@ -24,8 +34,7 @@
   - Add balsamic vinegar
   - Add rosemary
   - Add tomatoes
-- Measure out 250ml boiling water
-- Add water to saucepan
-  - Add peas
-  - Add pasta
-- Steam until 3/4 of the water is boiled
+  - Add chilli
+- Strain sauce pan
+  - Add pasta & peas to pan
+  - Mix together in pan

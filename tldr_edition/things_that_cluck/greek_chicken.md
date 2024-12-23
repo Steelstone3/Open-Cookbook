@@ -11,8 +11,6 @@
 
 ## Cous Cous
 
-- Boil a kettle
-- Get a bowl
 - Measure out 200 gram cous cous
 - Pour the water into the bowl to cous cous level
 - Get a plate to cover the bowl
@@ -20,21 +18,27 @@
 
 ## Preparation
 
+- Get a bowl
 - Get a pan
+- Get a sauce pan
+- Boil a kettle
 - Defrost chicken 400 gram
+- Measure out 200 gram peas
 - Cut half a pepper
 - Cut a chilli
-- Measure out 200 gram peas
 
 ## Meal
 
-- Brown chicken
+- Brown chicken (in pan)
   - Add oil
   - Add butter
   - Add seasoning
   - Add chilli
-  - Add olives
+  - Add peppers
+  - Add olives 80 grams
   - Add oregano
-- Cook the cous cous
-- Make the dip
+- Once brown
+  - Boil peas in sauce pan
+  - Cook the cous cous
+  - Make the dip
 - Cook until ready
