@@ -20,6 +20,7 @@
 - Defrost chicken 400 gram
 - Cut half a courgette
 - Cut half a pepper
+- Prepare sauce
 - Prepare rice
 
 ## Meal
