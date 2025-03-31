@@ -10,15 +10,14 @@
 - Boil kettle
 - Defrost lamb 400gram
 - Cut one chilli
+- Measure out 200g of pasta
 - Measure out 200g peas
 - Measure out 200g of tomatoes
-- Measure out 200g of pasta
 
 ## Meal
 
 ### Sauce Pan
 
-- Measure out 250ml boiling water
 - Add water to saucepan
   - Add peas
   - Add pasta
