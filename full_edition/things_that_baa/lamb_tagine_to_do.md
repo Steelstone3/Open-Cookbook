@@ -1,3 +1,0 @@
-# Lamb Tagine
-
-TODO
