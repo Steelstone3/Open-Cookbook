@@ -4,18 +4,7 @@
 
 ## Sauce
 
-> Get BBQ sauce OR
-
-- Get a bowl
-- Mix the ingredients
-  - Add garlic paste
-  - Add 1 big spoon Worcestershire sauce
-  - Add 2 big spoons of tomato ketchup
-  - Add 1 big spoon of HP sauce
-  - Add 1 big spoon of honey
-  - Add 1 big spoon of soy sauce
-  - Add 1 little spoon of tabasco
-  - Add 1.5 big spoon of apple juice
+> Get BBQ sauce
 
 ## Rice
 
