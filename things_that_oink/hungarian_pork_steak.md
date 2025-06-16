@@ -17,6 +17,7 @@
 - Butter
 - Seasoning
 - Garlic paste
+- Chopped tomatoes
 - Balsamic vinegar
 - Paprika
 - Coriander
