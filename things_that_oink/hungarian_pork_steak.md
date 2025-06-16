@@ -2,16 +2,14 @@
 
 > Serves 2
 
-## Preparation
+## Ingredients
 
-- Get a pan
-- Defrost pork
-- Cut half a pepper
-- Cut 1 carrot
-- Cut 1 apple
-- Prepare the rice
+- Pork
+- Rice
 
-### Condiments
+- Pepper
+- Carrot
+- Apple
 
 - Oil
 - Butter
@@ -21,6 +19,16 @@
 - Balsamic vinegar
 - Paprika
 - Coriander
+
+## Preparation
+
+- Get a pan
+- Defrost pork
+- Cut half a pepper
+- Cut 1 carrot
+- Cut 1 apple
+- Prepare the rice
+
 
 ### Sauce
 
