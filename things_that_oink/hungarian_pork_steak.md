@@ -2,20 +2,6 @@
 
 > Serves 2
 
-## Sauce
-
-- Get a bowl
-- Mix the following
-  - Chopped tomato
-  - 1 big spoon balsamic vinegar
-  - 1 little spoon paprika
-
-## Rice
-
-- Rice cooker
-  - Add rice 2 150ml Measures
-  - Add water 2 150ml Measures
-
 ## Preparation
 
 - Get a pan
@@ -24,6 +10,31 @@
 - Cut 1 carrot
 - Cut 1 apple
 - Prepare the rice
+
+### Condiments
+
+- Oil
+- Butter
+- Seasoning
+- Garlic paste
+- Balsamic vinegar
+- Paprika
+- Coriander
+
+### Sauce
+
+- Get a bowl
+- Mix the following
+  - Chopped tomato
+  - 1 big spoon balsamic vinegar
+  - 1 little spoon paprika
+
+### Rice
+
+- Rice cooker
+  - Add rice 2 150ml Measures
+  - Add water 2 150ml Measures
+
 
 ## Meal
 
