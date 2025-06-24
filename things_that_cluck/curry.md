@@ -2,6 +2,21 @@
 
 > Serves 2
 
+## Ingredients
+
+- Chicken
+- Rice
+
+- Pepper
+- Courgette
+
+- Oil
+- Butter
+- Seasoning
+- Chopped tomatoes
+- Tinned tomatoes
+- Curry paste
+
 ## Sauce
 
 - Get a bowl
