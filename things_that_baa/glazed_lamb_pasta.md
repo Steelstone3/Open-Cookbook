@@ -2,6 +2,22 @@
 
 > Serves 2
 
+## Ingredients
+
+- Lamb
+- Pasta 200g
+- Peas 200g
+
+- Tomatoes 200g
+
+- Butter
+- Garlic paste
+- Honey
+- Balsamic vinegar
+- Rosemary
+- Tomatoes
+- Chilli
+
 ## Preparation
 
 - Get pan
