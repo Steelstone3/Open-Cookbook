@@ -2,6 +2,23 @@
 
 > Serves 2
 
+## Ingredients
+
+- Chicken
+- Cous cous
+
+- Peas 200g
+- Pepper
+- Chilli
+- Olives
+
+- Butter
+- Oregano
+
+- Natural yoghurt
+- Cucumber
+- Honey
+
 ## Dip
 
 - Get a bowl

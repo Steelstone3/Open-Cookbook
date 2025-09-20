@@ -2,6 +2,23 @@
 
 > Serves 2
 
+## Ingredients
+
+- Chicken
+
+- Butter
+- Garlic paste
+- White wine 100ml
+- Potatoes 200g
+
+- Water 150ml
+- Chicken stock cube
+
+- Peas 200g
+- Courgette
+
+- Cream
+
 ## Preparation
 
 - Get a large sauce pan

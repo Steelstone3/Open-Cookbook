@@ -2,6 +2,24 @@
 
 > Serves 2
 
+## Ingredients
+
+- Beef mince
+- Rice
+
+- Chilli
+- Tomatoes
+
+- Butter
+- Honey
+- Garam masala **OR** Mixed spice
+- Ginger powder
+- Coriander
+- Tumeric
+
+- Coconut milk 200g
+- Rogan Josh curry paste
+
 ## Sauce
 
 - Add to pan
